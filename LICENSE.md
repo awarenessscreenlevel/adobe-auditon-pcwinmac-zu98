@@ -1,4 +1,4 @@
-# 
+# Gratuito Adobe Audition ferramentas para Mac OS | Oficial Adobe Audition ferramentas para PC Windows. Com estiramento de tempo e normalização — otimizado para máximo desempenho em cada plataforma.
 
 
 
